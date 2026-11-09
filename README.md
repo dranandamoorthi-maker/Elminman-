@@ -1,2 +1,2 @@
 # Elminman
-Ai Computing tech Electronic 
+Ai Computing Electronic Tech  etc.
